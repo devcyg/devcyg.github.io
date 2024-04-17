@@ -1,1 +1,0 @@
-# devcyg.github.io
